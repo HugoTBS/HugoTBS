@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @HugoTBS
+- 👀 I’m interested in sports, cinema and travel
+- 🌱 I’m currently learning marketing and business
+- 📫 How to reach me -> LinkedIn
